@@ -1,1 +1,2 @@
 # sampleProject
+Some of the things I would like to learn the most in this class would be to know the different coding languages and what makes each different, I would also like to learn how to design web sites and making sure they look good, but to lo learn those I obviously need to know the basics first. But mainly because I want to try coding to see if I should do this as a future career.
